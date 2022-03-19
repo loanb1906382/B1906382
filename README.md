@@ -13,6 +13,7 @@
 
 
 ## LUYỆN TẬP THỂ DỤC THỂ THAO HẰNG NGÀY
+![ex1](https://user-images.githubusercontent.com/101679832/159125583-aa88e3f9-6f13-4d25-9f9c-15a2eccf81b7.jpg)
 
 
 ## Tất cả mọi người đều có thể tham gia hoạt động thể dục 
